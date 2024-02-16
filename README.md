@@ -1,0 +1,1 @@
+vizualizr o jogo
